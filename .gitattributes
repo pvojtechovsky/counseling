@@ -1,0 +1,25 @@
+#Not specified file extensions are not affected by line ending conversion
+*				-text
+
+#Files with following file extensions have their line endings converted to LF
+*.aj			text eol=lf
+*.bat			text eol=crlf
+*.css			text eol=lf
+*.ftl			text eol=lf
+*.gitignore		text eol=lf
+*.gradle		text eol=lf
+*.htm			text eol=lf
+*.html			text eol=lf
+*.java			text eol=lf
+*.js			text eol=lf
+*.json			text eol=lf
+*.jsp			text eol=lf
+*.project		text eol=lf
+*.properties	text eol=lf
+*.svg			text eol=lf
+*.txt			text eol=lf
+*.xml			text eol=lf
+*.xsl			text eol=lf
+*.prefs			text eol=lf
+*.springBeans	text eol=lf
+*.md        	text eol=lf
