@@ -1,5 +1,6 @@
-# Psychofonetické sezení
-
+---
+title: Psychofonetické sezení
+---
 Je to už více než rok, co jsem objevil [Psychofonetiku](https://skolaempatie.sk/o-nas/o-psychofonetike/)
 a začal ji studovat. Praktické nástroje a znalosti, které zde
 dostávám, mi umožňují poznávat především sama sebe. Díky tomu se mi
