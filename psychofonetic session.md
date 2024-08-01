@@ -5,8 +5,7 @@ aliases:
   - psychofonetická sezení
   - popovídat
 ---
-Co se děje během [psychofonetického](https://skolaempatie.sk/o-nas/o-psychofonetike/) sezení? Vytvoříme společně
-bezpečný prostor, do kterého můžeš přinést cokoliv ze svého života:
+Co se děje během [psychofonetického](https://skolaempatie.sk/o-nas/o-psychofonetike/) sezení? Já v roli [[counselor|průvodce]] spolu s Tebou vytvořím bezpečný prostor, do kterého můžeš přinést cokoliv ze svého života:
 
 * čemu potřebuješ porozumět
 * co potřebuješ překonat
@@ -24,9 +23,9 @@ Pomohu Ti u tohoto Tvého tématu získat nadhled, pochopení sebe sama a nové 
 * k návratu sebedůvěry, naděje, chuti a vůle konat a žít svůj život
 
 Bezpečný prostor znamená mimo jiné:
-- Soukromí: Vše co přineseš zůstává zde mezi námi. 
+- Soukromí: Vše, co přineseš zůstává zde mezi námi. 
 	- Z [[training sessions|učebních sezeních]] která jsou zdarma se dělá nahrávka. Z nahrávky dělám report pro supervizi, kterou mohou vidět mí učitelé a spolužáci. Neuvidí však nikdy tvé jméno.
-- Respekt: Mám respekt ke všemu co je projeveno. Přijímám to, nekritizuju, nehodnotím.
+- Respekt: Mám respekt ke všemu, co je projeveno. Přijímám to, nekritizuju, nehodnotím.
 - Svoboda: Máš svobodu dělat a říkat jen to co chceš.
 
 Co se NEDĚJE během sezení.
@@ -40,5 +39,6 @@ Co se NEDĚJE během sezení.
 * délka sezení cca 1 - 1.5 hodiny
 * můžeme se sejít vzdáleně přes počítač, nebo i osobně v Prostějově. Mám k dispozici vhodný prostor.
 * stejně jako v jiných druzích psychologických sezení, tak ani v psychofonetice se nedoporučuje dělat sezení s příbuznými a blízkými přáteli. Jsou pro to dobré důvody. Budu ale rád, když mi doporučíš své známé. A já Ti zase mohu doporučit své výborné spolužáky, kteří také nyní nabízejí sezení zdarma.
+* pokud váháš, protože o mě nic nevíš, tak Ti třeba pomůže něco [[about me|o mně]].
 
-A na závěr jedna důležitá podmínka: Dobrovolnost - nelze nikoho nutit, aby se změnil. Pokud Tě tedy štve manžel/manželka/syn/dcera/otec/matka/kolega/kamarád/.../pes/mraky/slimáci na zahradě/..., tak jej/je nenuťte, aby mě navštívil/i, s nadějí, že já je změním. To nefunguje. Přijď raději sám/sama. Věřím, že společně přijdeme na to co s tím můžeš Ty dělat i když to vypadá, a možná to tak i opravdu je, že změna je nutná u nich.
+A na závěr jedna důležitá podmínka: Dobrovolnost - nelze nikoho nutit, aby se změnil. Pokud Tě tedy štve manžel/manželka/syn/dcera/otec/matka/kolega/kamarád/.../pes/mraky/slimáci na zahradě/..., tak jej/je nenuťte, aby mě navštívil/i, s nadějí, že já je změním. To nefunguje. Přijď raději sám/sama. Věřím, že společně přijdeme na to, co s tím můžeš Ty dělat i když to vypadá, a možná to tak i opravdu je, že změna je nutná u nich.
