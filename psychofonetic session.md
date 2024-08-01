@@ -26,7 +26,7 @@ Pomohu Ti u tohoto Tvého tématu získat nadhled, pochopení sebe sama a nové 
 Bezpečný prostor znamená mimo jiné:
 - Soukromí: Vše co přineseš zůstává zde mezi námi. 
 	- Z [[training sessions|učebních sezeních]] která jsou zdarma se dělá nahrávka. Z nahrávky dělám report pro supervizi, kterou mohou vidět mí učitelé a spolužáci. Neuvidí však nikdy tvé jméno.
-- Respekt: Mám respekt ke všemu co je projeveno. Přijímám to. Kritiku a odsuzování nenajdeš v mých činech ani slovech.
+- Respekt: Mám respekt ke všemu co je projeveno. Přijímám to, nekritizuju, nehodnotím.
 - Svoboda: Máš svobodu dělat a říkat jen to co chceš.
 
 Co se NEDĚJE během sezení.
