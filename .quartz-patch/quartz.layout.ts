@@ -6,7 +6,7 @@ export const sharedPageComponents: SharedLayout = {
   head: Component.Head(),
   header: [],
   afterBody: [
-    Component.Comments({
+  /*  Component.Comments({
       provider: 'giscus',
       options: {
         // from data-repo
@@ -19,7 +19,7 @@ export const sharedPageComponents: SharedLayout = {
         categoryId: 'DIC_kwDOMULDgs4CiYv6',
         inputPosition: "top",
       }
-    }),
+    }),*/
   ],
   footer: Component.Footer({
     links: {
