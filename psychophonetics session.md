@@ -40,5 +40,3 @@ Co se NEDĚJE během sezení.
 * můžeme se sejít vzdáleně přes počítač, nebo i osobně v Prostějově. Mám k dispozici vhodný prostor.
 * stejně jako v jiných druzích psychologických sezení, tak ani v psychofonetice se nedoporučuje dělat sezení s příbuznými a blízkými přáteli. Jsou pro to dobré důvody. Budu ale rád, když mi doporučíš své známé. A já Ti zase mohu doporučit své výborné spolužáky, kteří také nyní nabízejí sezení zdarma.
 * pokud váháš, protože o mě nic nevíš, tak Ti třeba pomůže něco [[about me|o mně]].
-
-A na závěr jedna důležitá podmínka: Dobrovolnost - nelze nikoho nutit, aby se změnil. Pokud Tě tedy štve manžel/manželka/syn/dcera/otec/matka/kolega/kamarád/.../pes/mraky/slimáci na zahradě/..., tak jej/je nenuťte, aby mě navštívil/i, s nadějí, že já je změním. To nefunguje. Přijď raději sám/sama. Věřím, že společně přijdeme na to, co s tím můžeš Ty dělat i když to vypadá, a možná to tak i opravdu je, že změna je nutná u nich.

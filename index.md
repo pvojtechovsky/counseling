@@ -3,7 +3,7 @@ title: Zpráva
 ---
 Ahoj,
 
-možná bych Ti mohl [[counselor|pomoci]] na Tvé cestě. Můžeme si [[psychofonetic session|popovídat]] a zjistit co můžeš udělat pro to, aby jsi mohl/a jít dál - směrem k Tvému cíli.
+možná bych Ti mohl pomoci na Tvé cestě. Můžeme si [[psychophonetics session|popovídat]] a zjistit co můžeš udělat pro to, aby jsi mohl/a jít dál - směrem k Tvému cíli.
 
 Z vlastní zkušenosti vím, že ne každý má chuť si povídat s cizími lidmi a tak jsem napsal i něco [[about me|o sobě]]. Třeba už Ti pak nebudu tak cizí.
 
