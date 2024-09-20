@@ -23,4 +23,4 @@ a to vše je potřebné k vědomému tvoření si toho co klient potřebuje, neb
 
 Všechno, co se průvodce naučí si nejprve prakticky vyzkouší ve svém vlastním životě - na sobě. Až po té, co tyto nástroje umí používat pro sebe a ví že mu fungují, tak je má možnost použít při vedení klienta.
 
-Každý průvodce je pod supervizí zkušených kolegů a učitelů, která zajišťuje vysokou kvalitu a dodržování [etických principů psychofonetiky](https://skolaempatie.sk/o-nas/eticke-principy-psychofonetiky/), které chrání jak klienta, tak i průvodce.
+Každý průvodce je [registrován](https://skolaempatie.sk/adresar-konzultantov/pavel-vojtechovsky/) v [IAPP](https://www.psychophonetics.com.au/categories/Association/) pod supervizí zkušených kolegů a učitelů, která zajišťuje vysokou kvalitu a dodržování [etických principů psychofonetiky](https://skolaempatie.sk/o-nas/eticke-principy-psychofonetiky/), které chrání jak klienta, tak i průvodce.
