@@ -23,7 +23,8 @@ export const sharedPageComponents: SharedLayout = {
   ],
   footer: Component.Footer({
     links: {
-      "Kontakt": "https://www.facebook.com/pavel.vojtechovsky.92/",
+      "Facebook": "https://www.facebook.com/pavel.vojtechovsky.92/",
+      "Email": "mailto:empatie.pavel@seznam.cz,
       "Psychofonetika": "https://skolaempatie.sk/o-nas/o-psychofonetike/",
     },
   }),
