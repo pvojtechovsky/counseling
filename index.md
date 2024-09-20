@@ -8,7 +8,7 @@ po dobu mého studia (do června 2026) nabízím zdarma [[psychophonetics sessio
 
 V těchto konzultacích využívám metodickou empatii a další metody z [Psychofonetiky](https://skolaempatie.sk/o-nas/o-psychofonetike/), kterou již druhým rokem s nadšením a vděčností studuji.
 
-Nyní od začátku druhého roku mého studia mohu jako praktikující student provádět Psychofonetická sezení s kýmkoliv, kdo má potřebu se na svou životní situaci podívat a nalézt v ní to, co nalézt potřebuje, aby mohl jít dále. Metodická empatie mi již pomohla v mém soukromém i pracovním životě a věřím, že pomůže i dalším lidem.
+Nyní od začátku druhého roku mého studia mohu jako [praktikující student](https://skolaempatie.sk/adresar-konzultantov/pavel-vojtechovsky/) provádět Psychofonetická sezení s kýmkoliv, kdo má potřebu se na svou životní situaci podívat a nalézt v ní to, co nalézt potřebuje, aby mohl jít dále. Metodická empatie mi již pomohla v mém soukromém i pracovním životě a věřím, že pomůže i dalším lidem.
 
 Pokud máš zájem, nebo znáš někoho, kdo by mohl mít o sezení zájem, pak mi dejte vědět. Rád zodpovím i případné dotazy.
 
