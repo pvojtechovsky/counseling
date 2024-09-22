@@ -3,7 +3,7 @@ title: Sezení zdarma
 aliases:
   - učebních sezeních
 ---
-Je to už více než rok, co jsem objevil [Psychofonetiku](https://skolaempatie.sk/o-nas/o-psychofonetike/) a začal ji studovat. Praktické nástroje a znalosti, které zde dostávám, mi umožňují poznávat především sama sebe. Díky tomu se mi lépe daří rozpoznat své vnitřní překážky a překonávat je. Je pro mě nyní snazší pečovat o své nitro a uvolnit si cestu ke svým vnitřním zdrojům.
+Je to už více než rok, co jsem objevil [Psychofonetiku](https://skolaempatie.sk/o-nas/o-psychofonetike/) a začal ji v březnu 2023 studovat. Praktické nástroje a znalosti, které zde dostávám, mi umožňují poznávat především sama sebe. Díky tomu se mi lépe daří rozpoznat své vnitřní překážky a překonávat je. Je pro mě nyní snazší pečovat o své nitro a uvolnit si cestu ke svým vnitřním zdrojům.
 
 Nyní, když začínám druhý ročník tohoto tříletého studia, je již čas na [studentskou praxi](https://skolaempatie.sk/adresar-konzultantov/pavel-vojtechovsky/) a práci s klienty z veřejnosti. Poznávat sám sebe a pomáhat sám sobě, je totiž jen první nezbytný krok na cestě k tomu, abych mohl prostřednictvím psychofonetických sezení pomáhat i ostatním.
 
