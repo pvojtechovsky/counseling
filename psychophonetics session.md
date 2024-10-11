@@ -31,3 +31,4 @@ Bezpečný prostor znamená mimo jiné:
 * délka sezení cca 1 - 1.5 hodiny
 * můžeme se sejít vzdáleně přes počítač, nebo osobně v útulné konzultační místností v Prostějově
 * něco [[about me|o mně]]
+- kontaktovat mě můžete přes [Messenger](https://www.facebook.com/pavel.vojtechovsky.92/) 
