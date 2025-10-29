@@ -55,13 +55,13 @@ Od května 2022 budujeme s mou dlouholetou přítelkyní nový zdravý vztah. U�
 
 V roce 2023 jsem se přihlásil do tříletého studia psychofonetiky. Přivedla mě k ní [Katarína Piesňomila Králiková](https://www.facebook.com/katka.kralikova.71) na [víkendovém workshopu](https://www.piesen-duse.in/), kde nás učila, jak pomoci sami sobě s některými duševními bloky/zraněními. Praktičnost, jednoduchost a funkčnost těchto psychofonetických nástrojů mě tehdy přesvědčila, že to stojí za to.
 
-Dnes mám za sebou celý první ročník [Psychofonetiky](https://skolaempatie.sk/o-nas/o-psychofonetike/) pod vedením našeho učitele [Yehuda Tagar](https://skolaempatie.sk/o-nas/yehuda-tagar/). Vím, že jsem dostal do rukou přesně ty nástroje pro poznávání mé duše, které jsem více než 50 let hledal. Stále mě drží má touha poznávat a díky poznání pak pomáhat sobě i ostatním. A i když už jsem toho v sobě mnoho objevil a uzdravil, tak vnímám, že tahle cesta nemá konec. Lidská duše je rozmanitá, proměnlivá a plná překvapení a různých zákoutí, stejně jako svět, ve kterém žijeme. A to je moc dobře :-) 
+Dnes mám za sebou celý první a druhý ročník [Psychofonetiky](https://skolaempatie.sk/o-nas/o-psychofonetike/) pod vedením našeho učitele [Yehuda Tagar](https://skolaempatie.sk/o-nas/yehuda-tagar/). Vím, že jsem dostal do rukou přesně ty nástroje pro poznávání mé duše, které jsem více než 50 let hledal. Stále mě drží má touha poznávat a díky poznání pak pomáhat sobě i ostatním. A i když už jsem toho v sobě mnoho objevil a uzdravil, tak vnímám, že tahle cesta nemá konec. Lidská duše je rozmanitá, proměnlivá a plná překvapení a různých zákoutí, stejně jako svět, ve kterém žijeme. A to je moc dobře :-) 
 
-Za ten rok studia už mám za sebou desítky [[psychophonetics session|psychofonetických sezení]], kde jsem byl v roli klienta, [[counselor|průvodce]], nebo pozorovatele. Stále mě překvapuje vysoká úspěšnost těchto sezení a co všechno se díky nim dá v duševním a duchovním světě objevit, uzdravit, překonat, nebo získat. Nejvíc mě těší to, že ať už jsem v roli klienta, průvodce, nebo pozorovatele, tak vždycky dochází i k mému vnitřnímu růstu a posunu na mé cestě. 
+Za ty dva roky studia už mám za sebou desítky [[psychophonetics session|psychofonetických sezení]], kde jsem byl v roli klienta, [[counselor|průvodce]], nebo pozorovatele. Stále mě překvapuje vysoká úspěšnost těchto sezení a co všechno se díky nim dá v duševním a duchovním světě objevit, uzdravit, překonat, nebo získat. Nejvíc mě těší to, že ať už jsem v roli klienta, průvodce, nebo pozorovatele, tak vždycky dochází i k mému vnitřnímu růstu a posunu na mé cestě. 
 
 "Každé skutečné lidské setkání všechny zúčastněné obohatí."
 
 Těším se i na Vás<br>
-Pavel
+Pavel Vojtěchovský
 
 ![[Vyrez.jpg|200]]
