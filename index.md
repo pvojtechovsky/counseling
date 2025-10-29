@@ -1,5 +1,5 @@
 ---
-title: Zpráva
+title: Psychofonetika a konzultace pro osobní rozvoj zdarma
 aliases:
 ---
 Ahoj,
