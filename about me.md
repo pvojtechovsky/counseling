@@ -39,7 +39,7 @@ Hned na prvním víkendu tohoto výcviku jsem objevil "sdílení". Co tím mysl�
 
 V létě 2020 jsem s výcvikem mužská síla absolvoval po předchozí přípravě Vision quest. Čtyři dny a čtyři noci, sám v lese pod celtou, bez jídla, jen s vodou v dobré společnosti mé vlastní duše a tichého voňavého lesa. Další nepopsatelný zážitek ticha, důvěry, pokory a úcty k přírodě a zázrakům života na naší krásné planetě Zemi. 
 
-V té době jsem začal také navštěvovat sebe-rozvojový žensko-mužský kruh vedený [Leonou Kling](https://balcon.cz/www-moped-cz/leona-kling/). Zde jsem načerpal a dodnes stále čerpám cenné vhledy, do toho jak funguje naše psychika a také zde dále pracuji na svém rozvoji. Rád bych upřesnil, že se nejedná o terapeutický výcvik, ale "jen" o můj seberozvoj.
+V té době jsem začal také navštěvovat sebe-rozvojový žensko-mužský kruh vedený [Leonou Kling](https://balcon.cz/www-moped-cz/leona-kling/). Zde jsem načerpal cenné vhledy, do toho jak funguje naše psychika a také jsem zde pracoval na svém rozvoji. Rád bych upřesnil, že se nejednalo o terapeutický výcvik, ale "jen" o můj seberozvoj.
 
 ## Rozvod, hledání sama sebe, intuitivní tanec
 V únoru roku 2022 jsem se definitivně po cca 7 letech váhaní a pokusech o změnu a uzdravení vztahu rozhodl, že se rozvedu. Důvodů k rozvodu bylo mnoho. Hlavní bylo asi to, že většina mých sebe-rozvojových aktivit, o kterých zde píšu, byla mé bývalé ženě trnem v oku. Nechápala to, bála se toho, odsuzovala mě a snažila se mě od této mé cesty odradit. To, co mi dávalo smysl, ji vadilo a to čím trávila čas ona, zase nedávalo smysl mě. Viděl jsem jasně, že se naše cesty rozcházejí a že další pokračování vztahu už přináší jen oboustrannou bolest, a tak jsem po 20 letech manželství ukončil.
@@ -57,7 +57,7 @@ V roce 2023 jsem se přihlásil do tříletého studia psychofonetiky. Přivedla
 
 Dnes mám za sebou celý první a druhý ročník [Psychofonetiky](https://skolaempatie.sk/o-nas/o-psychofonetike/) pod vedením našeho učitele [Yehuda Tagar](https://skolaempatie.sk/o-nas/yehuda-tagar/). Vím, že jsem dostal do rukou přesně ty nástroje pro poznávání mé duše, které jsem více než 50 let hledal. Stále mě drží má touha poznávat a díky poznání pak pomáhat sobě i ostatním. A i když už jsem toho v sobě mnoho objevil a uzdravil, tak vnímám, že tahle cesta nemá konec. Lidská duše je rozmanitá, proměnlivá a plná překvapení a různých zákoutí, stejně jako svět, ve kterém žijeme. A to je moc dobře :-) 
 
-Za ty dva roky studia už mám za sebou desítky [[psychophonetics session|psychofonetických sezení]], kde jsem byl v roli klienta, [[counselor|průvodce]], nebo pozorovatele. Stále mě překvapuje vysoká úspěšnost těchto sezení a co všechno se díky nim dá v duševním a duchovním světě objevit, uzdravit, překonat, nebo získat. Nejvíc mě těší to, že ať už jsem v roli klienta, průvodce, nebo pozorovatele, tak vždycky dochází i k mému vnitřnímu růstu a posunu na mé cestě. 
+Za ty dva roky studia už mám za sebou desítky [[consultation|psychofonetických sezení]], kde jsem byl v roli klienta, [[counselor|průvodce]], nebo pozorovatele. Stále mě překvapuje vysoká úspěšnost těchto sezení a co všechno se díky nim dá v duševním a duchovním světě objevit, uzdravit, překonat, nebo získat. Nejvíc mě těší to, že ať už jsem v roli klienta, průvodce, nebo pozorovatele, tak vždycky dochází i k mému vnitřnímu růstu a posunu na mé cestě. 
 
 "Každé skutečné lidské setkání všechny zúčastněné obohatí."
 
